@@ -1,2 +1,1 @@
-# IloveConcordia
-This took me a lot of hard-work :) 
+# Good Day Valued Reader , I created this website with the intent of showcasing my skills to the concordia university's board and i have no intent of publishing it as it contains intellectual properties of Concordians . I am a young Nigerian High School student (15 years of age who will be willing to apply for the 2025 fall semester . )Unrelated information (I am fluent in English and an A1 level speaker of French  ).
